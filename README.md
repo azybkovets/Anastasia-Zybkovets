@@ -7,7 +7,7 @@
 4. Can't stand getting up early in the morning 
 5. Love having fun and spending time with my friends, as they always support me and cheer up
 
-![alt-текст](https://pp.userapi.com/c622928/v622928176/3f261/uJh7vtf9Dwk.jpg "Необязательный титул")
+![alt-текст](https://www.instagram.com/p/BKSnWNdAfhm/?taken-by=mountain_dragonblue.jpg "Необязательный титул")
 
 6. Hate rainy weather as it makes me gloomy
 
