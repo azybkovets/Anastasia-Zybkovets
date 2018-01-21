@@ -7,6 +7,7 @@
 4. Can't stand getting up early in the morning 
 5. Love having fun and spending tome with my friends, as they always support me and cheer up
 6. Hate rainy weather as it makes me gloomy
+
 ![alt-текст](http://media.tumblr.com/tumblr_lyzrlu0IcI1r66ca2.gif "Необязательный титул")
 7. I am fond of foreign languages and try to use them in any possible spheres to improve my skills
 8. Can't live without music and listen to it whenever it is possible
