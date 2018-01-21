@@ -1,6 +1,6 @@
 # Анастасия Зыбковец
 ## Some information about me
-<https://pp.userapi.com/c622928/v622928176/3f261/uJh7vtf9Dwk.jpg>
+![alt-текст](https://pp.userapi.com/c622928/v622928176/3f261/uJh7vtf9Dwk.jpg "Необязательный титул")
 1. I adore animals and eager to be a volunteer who helps them in special shelters
 2. Have positive outlook on life and try to stay positive in any situation
 3. Love watching movies and spend almost my whole free time on them
