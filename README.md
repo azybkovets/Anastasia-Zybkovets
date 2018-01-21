@@ -6,3 +6,4 @@
 4. Can't stand getting up early in the morning
 5. Love having fun
 ![alt-текст](https://i.ytimg.com/vi/Py9uWbhA2A8/maxresdefault.jpg "Необязательный титул")
+<https://vk.com/id36187176>
