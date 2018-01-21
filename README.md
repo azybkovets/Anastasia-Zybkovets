@@ -11,7 +11,7 @@
 8. Can't live without music and listen to it whenever it is possible
 9. Really love pizza and nachos
 10. Learn Chinese and Latin
-Here are my profiles in social networks:
+Here are my profiles in social networks: <пробел><пробел>
 * <https://vk.com/id36187176>
 * <https://www.facebook.com/zybasya>
 ![alt-текст](https://i.ytimg.com/vi/Py9uWbhA2A8/maxresdefault.jpg "Необязательный титул")
