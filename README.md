@@ -6,6 +6,6 @@
 4. Can't stand getting up early in the morning 
 5. Love having fun and spending tome with my friends, as they always support me and cheer up
 6. Hate rainy weather as it makes me gloomy
-![alt-текст](http://media.tumblr.com/tumblr_lyzrlu0IcI1r66ca2.gif.jpg "Необязательный титул")
+![alt-текст](http://media.tumblr.com/tumblr_lyzrlu0IcI1r66ca2.gif "Необязательный титул")
 ![alt-текст](https://i.ytimg.com/vi/Py9uWbhA2A8/maxresdefault.jpg "Необязательный титул")
 <https://vk.com/id36187176>
