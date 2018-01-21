@@ -1,11 +1,14 @@
 # Анастасия Зыбковец
 ## Some information about me
 ![alt-текст](https://pp.userapi.com/c622928/v622928176/3f261/uJh7vtf9Dwk.jpg "Необязательный титул")
-1. I adore animals and eager to be a volunteer who helps them in special shelters
-2. Have positive outlook on life and try to stay positive in any situation
+1. I adore animals and eager to become a volunteer who helps them in special shelters
+2. Have positive outlook on life and try to stay positive in any situations
 3. Love watching movies and spend almost my whole free time on them
 4. Can't stand getting up early in the morning 
-5. Love having fun and spending tome with my friends, as they always support me and cheer up
+5. Love having fun and spending time with my friends, as they always support me and cheer up
+
+![alt-текст](![alt-текст](https://pp.userapi.com/c622928/v622928176/3f261/uJh7vtf9Dwk.jpg "Необязательный титул")
+
 6. Hate rainy weather as it makes me gloomy
 
 ![alt-текст](http://media.tumblr.com/tumblr_lyzrlu0IcI1r66ca2.gif "Необязательный титул")
