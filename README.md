@@ -22,6 +22,6 @@
 - <https://vk.com/id36187176>
 - <https://www.facebook.com/zybasya>
 - <https://www.instagram.com/mountain_dragonblue/>
-+ Thank you for your time, I hope that you enjoyed reading this.
++ Thank you for your time, I hope that you enjoyed reading this!
 
 ![alt-текст](https://i.ytimg.com/vi/Py9uWbhA2A8/maxresdefault.jpg "Необязательный титул")
